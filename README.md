@@ -1,1 +1,1 @@
-The show became a cultural phenomenon, inspiring fan theories, merchandise, and numerous parodies and references in popular culture.
+The show received widespread acclaim for its production values, including cinematography, visual effects, and makeup design.
