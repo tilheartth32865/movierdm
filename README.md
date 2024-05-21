@@ -1,1 +1,1 @@
-The show received widespread acclaim for its production values, including cinematography, visual effects, and makeup design.
+The series has inspired tourism to filming locations, such as Dubrovnik, Croatia, which served as the backdrop for King's Landing.
