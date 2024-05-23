@@ -1,1 +1,1 @@
-Daenerys Targaryen's dragons, Drogon, Rhaegal, and Viserion, grow from hatchlings to formidable beasts throughout the series.
+The Marvel Cinematic Universe (MCU) kicked off in 2010 with "Iron Man 2" and expanded to become the highest-grossing film franchise of all time.
