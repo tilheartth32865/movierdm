@@ -1,1 +1,1 @@
-The Marvel Cinematic Universe (MCU) kicked off in 2010 with "Iron Man 2" and expanded to become the highest-grossing film franchise of all time.
+"March of the Penguins" (2005), a French nature documentary, captivated audiences with its portrayal of emperor penguins' annual journey in Antarctica.
