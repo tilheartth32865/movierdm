@@ -1,1 +1,1 @@
-"March of the Penguins" (2005), a French nature documentary, captivated audiences with its portrayal of emperor penguins' annual journey in Antarctica.
+HBO has announced multiple spin-off projects set in the "Game of Thrones" universe, exploring different time periods and regions.
