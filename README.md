@@ -1,1 +1,1 @@
-"March of the Penguins" (2005), a French nature documentary, captivated audiences with its portrayal of emperor penguins' annual journey in Antarctica.
+"Gravity" (2013), directed by Alfonso Cuarón, pushed the boundaries of visual effects and immersive storytelling, earning critical acclaim and multiple Academy Awards.
