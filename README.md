@@ -1,1 +1,1 @@
-"Gravity" (2013), directed by Alfonso Cuarón, pushed the boundaries of visual effects and immersive storytelling, earning critical acclaim and multiple Academy Awards.
+The Battle of the Bastards, showcased in Season 6, Episode 9, is praised for its visceral intensity and cinematography.
