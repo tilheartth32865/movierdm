@@ -1,1 +1,1 @@
-Brie Larson made history as the first woman to lead a Marvel Cinematic Universe film with her portrayal of Captain Marvel in "Captain Marvel" (2019).
+"Spirited Away" (2001), directed by Hayao Miyazaki, became the first non-English language film to win the Academy Award for Best Animated Feature.
