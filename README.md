@@ -1,1 +1,1 @@
-"Spirited Away" (2001), directed by Hayao Miyazaki, became the first non-English language film to win the Academy Award for Best Animated Feature.
+"Game of Thrones" won the Primetime Emmy Award for Outstanding Drama Series four times, in 2015, 2016, 2018, and 2019.
