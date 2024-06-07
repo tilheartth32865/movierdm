@@ -1,1 +1,1 @@
-"The Lord of the Rings" film trilogy, directed by Peter Jackson, concluded with "The Return of the King" in 2003, winning multiple Oscars.
+The Battle of the Bastards, showcased in Season 6, Episode 9, is praised for its visceral intensity and cinematography.
