@@ -1,1 +1,1 @@
-The Battle of the Bastards, showcased in Season 6, Episode 9, is praised for its visceral intensity and cinematography.
+"Game of Thrones" received critical acclaim and holds the record for the most Primetime Emmy Awards won by a drama series.
