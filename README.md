@@ -1,1 +1,1 @@
-"Game of Thrones" received critical acclaim and holds the record for the most Primetime Emmy Awards won by a drama series.
+Arya Stark's journey from a young girl seeking revenge to a skilled assassin is a central arc of the series, portrayed by Maisie Williams.
