@@ -1,1 +1,1 @@
-Arya Stark's journey from a young girl seeking revenge to a skilled assassin is a central arc of the series, portrayed by Maisie Williams.
+"Wonder Woman" (2017), directed by Patty Jenkins and starring Gal Gadot, became a symbol of female empowerment and shattered box office records for a female-directed superhero film.
