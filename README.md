@@ -1,1 +1,1 @@
-"Donnie Darko" (2001), directed by Richard Kelly, gained a cult following for its enigmatic storyline and memorable performances, including Jake Gyllenhaal's.
+"Game of Thrones" received critical acclaim and holds the record for the most Primetime Emmy Awards won by a drama series.
