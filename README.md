@@ -1,1 +1,1 @@
-The rise of streaming platforms like Netflix and Amazon Prime Video disrupted the traditional film distribution model, leading to an influx of original content.
+Netflix produced acclaimed films such as "Roma" (2018), directed by Alfonso Cuarón, which won three Academy Awards including Best Director.
