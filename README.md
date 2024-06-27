@@ -1,1 +1,1 @@
-"Star Wars: The Force Awakens" (2015) revived the iconic sci-fi saga for a new generation, breaking numerous box office records upon its release.
+Brie Larson made history as the first woman to lead a Marvel Cinematic Universe film with her portrayal of Captain Marvel in "Captain Marvel" (2019).
