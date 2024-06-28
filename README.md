@@ -1,1 +1,1 @@
-Brie Larson made history as the first woman to lead a Marvel Cinematic Universe film with her portrayal of Captain Marvel in "Captain Marvel" (2019).
+Daenerys Targaryen's dragons, Drogon, Rhaegal, and Viserion, grow from hatchlings to formidable beasts throughout the series.
