@@ -1,1 +1,1 @@
-Daenerys Targaryen's dragons, Drogon, Rhaegal, and Viserion, grow from hatchlings to formidable beasts throughout the series.
+Each season typically consists of ten episodes, with runtime ranging from 50 to 80 minutes per episode.
