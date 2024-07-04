@@ -1,1 +1,1 @@
-The success of Indian films like "Baahubali: The Beginning" (2015) and "Baahubali 2: The Conclusion" (2017) demonstrated the growing influence of Bollywood on the global stage.
+The series finale, "The Iron Throne," drew mixed reactions from fans and critics, sparking debates about its conclusion.
