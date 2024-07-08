@@ -1,1 +1,1 @@
-The series finale, "The Iron Throne," drew mixed reactions from fans and critics, sparking debates about its conclusion.
+The phrase "winter is coming" became a popular catchphrase, symbolizing impending danger or change.
