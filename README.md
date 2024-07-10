@@ -1,1 +1,1 @@
-"Pan's Labyrinth" (2006), directed by Guillermo del Toro, blended fantasy and historical drama to create a visually stunning and emotionally resonant film.
+The success of Indian films like "Baahubali: The Beginning" (2015) and "Baahubali 2: The Conclusion" (2017) demonstrated the growing influence of Bollywood on the global stage.
