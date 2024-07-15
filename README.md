@@ -1,1 +1,1 @@
-"Game of Thrones" received critical acclaim and holds the record for the most Primetime Emmy Awards won by a drama series.
+The success of films like "Love, Simon" (2018) and "Call Me by Your Name" (2017) highlighted the demand for LGBTQ+ stories and characters in mainstream cinema.
