@@ -1,1 +1,1 @@
-The success of films like "Love, Simon" (2018) and "Call Me by Your Name" (2017) highlighted the demand for LGBTQ+ stories and characters in mainstream cinema.
+South Korean cinema gained international acclaim with films like "Oldboy" (2013), "The Handmaiden" (2016), and "Parasite" (2019), showcasing diverse storytelling and innovative filmmaking.
