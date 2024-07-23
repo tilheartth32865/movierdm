@@ -1,1 +1,1 @@
-Dragons, direwolves, and White Walkers are among the fantastical elements in the show's rich mythology.
+Greta Gerwig's "Lady Bird" (2017) received widespread acclaim but faced criticism for its lack of recognition in major Oscar categories like Best Director.
