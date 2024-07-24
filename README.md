@@ -1,1 +1,1 @@
-Greta Gerwig's "Lady Bird" (2017) received widespread acclaim but faced criticism for its lack of recognition in major Oscar categories like Best Director.
+Sofia Coppola's "Lost in Translation" (2003) won the Academy Award for Best Original Screenplay and earned critical praise for its intimate portrayal of loneliness and connection.
