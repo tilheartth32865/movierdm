@@ -1,1 +1,1 @@
-Sofia Coppola's "Lost in Translation" (2003) won the Academy Award for Best Original Screenplay and earned critical praise for its intimate portrayal of loneliness and connection.
+The "Harry Potter" film series, based on J.K. Rowling's novels, debuted in 2001 with "Harry Potter and the Sorcerer's Stone."
