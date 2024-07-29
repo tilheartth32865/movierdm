@@ -1,1 +1,1 @@
-The "Harry Potter" film series, based on J.K. Rowling's novels, debuted in 2001 with "Harry Potter and the Sorcerer's Stone."
+Jamie Foxx received critical acclaim for his portrayal of musician Ray Charles in "Ray" (2004), winning the Academy Award for Best Actor.
