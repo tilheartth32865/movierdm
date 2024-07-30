@@ -1,1 +1,1 @@
-Jamie Foxx received critical acclaim for his portrayal of musician Ray Charles in "Ray" (2004), winning the Academy Award for Best Actor.
+Fans of "Game of Thrones" developed elaborate theories about the identity of Azor Ahai, the fate of Jon Snow, and other unresolved plot points.
