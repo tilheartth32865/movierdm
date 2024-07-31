@@ -1,1 +1,1 @@
-Fans of "Game of Thrones" developed elaborate theories about the identity of Azor Ahai, the fate of Jon Snow, and other unresolved plot points.
+The theory of R+L=J, suggesting Jon Snow's true parentage, was confirmed in the sixth season, validating years of speculation among fans.
