@@ -1,1 +1,1 @@
-The theory of R+L=J, suggesting Jon Snow's true parentage, was confirmed in the sixth season, validating years of speculation among fans.
+"Game of Thrones" is known for its complex political intrigue, epic battles, and unexpected plot twists.
